@@ -1,0 +1,2 @@
+# fuckog
+trrtdthtutytr
